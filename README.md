@@ -1,3 +1,2 @@
 # Physicalcomputing_Shroom
-ne
-lel 
+es war ein warmer Sommertag für H. McS ...
